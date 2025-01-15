@@ -8,7 +8,7 @@
 
 ## References and Resources
 
-N/a
+N/A
 
 ## Verbal Collaboration
 
